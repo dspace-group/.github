@@ -1,4 +1,4 @@
-# dSPACE GmbH
+# dSPACE SE & Co. KG
 
 **Always by your side**
 
